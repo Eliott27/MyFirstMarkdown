@@ -25,4 +25,4 @@ J'ai actuellement fini mes études en ***e-business*** à l'ephec et j'ai commen
 2. L'entraide 
 3. La bonne volonté
 
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Flewis-hamilton&psig=AOvVaw1PMVxpvzavriI8JxWsampD&ust=1695454488491000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCMi9tKXavYEDFQAAAAAdAAAAABAK] 
+! [Hamilton] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Flewis-hamilton&psig=AOvVaw1PMVxpvzavriI8JxWsampD&ust=1695454488491000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCMi9tKXavYEDFQAAAAAdAAAAABAK) 
